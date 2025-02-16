@@ -34,7 +34,7 @@ If you're interested in working together or sharing ideas, feel free to reach ou
 ## 📬 Get in Touch
 
 - Email: [Amamiahmed@hotmail.com](mailto:Amamiahmed@hotmail.com)
-- LinkedIn: [Ahmed-Amami](https://www.linkedin.com/in/ahmed-amami)
+- LinkedIn: [Ahmed-Amami](https://www.linkedin.com/in/ahmed-amami-7479592a1/)
 
 ✨ Feel free to explore my repositories and connect with me for exciting collaborations!
 
